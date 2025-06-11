@@ -1,4 +1,4 @@
-## Hi I'm Nava Vensosa!
+## Hi! I'm Nava Vensosa!
 
 ### I'm working on sound sculptures while attending my NYU as an ITP student. I'm also involved in an interdisciplinary research startup out of UC Berkeley called TMASCI!
 
